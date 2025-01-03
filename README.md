@@ -1,1 +1,1 @@
-<iframe src="https://drive.google.com/file/d/1AOozvMyQTIfstRvptcvS0xIFo3XHGolH/preview" width="640" height="480" allow="autoplay"></iframe>
+[Watch the video](https://drive.google.com/file/d/1AOozvMyQTIfstRvptcvS0xIFo3XHGolH/view?usp=sharing)
